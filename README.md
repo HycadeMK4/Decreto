@@ -1,1 +1,1 @@
-bye bye bitcoin
+bye bye bitcoi
