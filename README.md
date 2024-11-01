@@ -1,1 +1,1 @@
-By By Bitcoin
+bye bye bitcoin
