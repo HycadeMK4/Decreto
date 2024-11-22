@@ -1,1 +1,0 @@
-https://explorer.perawallet.app/assets/213517063/
